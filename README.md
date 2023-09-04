@@ -1,0 +1,1 @@
+# smartbrige_MN2023TMID33920
